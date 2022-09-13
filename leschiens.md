@@ -34,4 +34,6 @@ Donc en résumé pour ne pas se faire mordre que je m’approche d’un chien :
 
 ## Les chiens nous veulent du bien
 En effet, il est prouvé que les chiens sont un anti-stress naturel et ils ont bien d’autres bienfaits !
-Pour preuve, cet [article très très intéressant](https://www.purina.fr/chiots/bienfaits-possession).
+Pour preuve, cet [article très super intéressant](https://www.purina.fr/chiots/bienfaits-possession).
+
+
